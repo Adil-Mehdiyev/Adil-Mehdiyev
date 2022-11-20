@@ -1,4 +1,4 @@
-### Hi there 👋 ADIL MEHDIYEV
+### 👋 ADIL MEHDIYEV
 
 #### 
 <details>
